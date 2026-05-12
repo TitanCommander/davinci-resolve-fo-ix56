@@ -1,4 +1,4 @@
-# 
+# Enhance DaVinci Resolve for PC | DaVinci Resolve for Windows with rare DaVinci Resolve for PC | DaVinci Resolve for Windows Overlay | time-remapping + timeline-editing, the #1
 
 
 
